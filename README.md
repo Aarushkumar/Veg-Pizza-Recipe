@@ -1,0 +1,5 @@
+# About
+<h3><p>This recipe includes instructions for how to create a chewy crust that’s lightly crisp on the bottom using all-purpose flour or bread flour. It makes a dough that is far better (and cheaper!) than any store bought dough or restaurant pizza I have tried.</p>
+<p>Even the tomato sauce is made from scratch! It’s wonderfully simple and flavorful, and is the perfect base for layering on lots of cheese and your choice of toppings.</p>
+<p>Not only is this homemade pizza recipe wholesome to make with no artificial ingredients, you don’t need any special kitchen equipment either.</p>
+<p>The best pizzas are made in a very hot wooden fired oven and over a pizza stone. Of course our kitchen ovens cannot be compared with the hot commercial ovens. When making a homemade pizza, I suggest to use the highest temperature in your oven.</p></h3>
